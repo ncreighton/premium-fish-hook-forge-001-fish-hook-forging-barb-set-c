@@ -1,0 +1,2 @@
+# premium-fish-hook-forge-001-fish-hook-forging-barb-set-c
+Stop losing your forging mojo to scattered notes and inconsistent barb angles—this Notion Lab turns your hook-making passion into a repeatable, precision craft.  The Fish Hook Forging &amp; Barb Set Craft Lab solves the chaos of undocumented experiments and forgotten alloy mixes. It gives you a centralized system to log every barb set, tweak variables,
